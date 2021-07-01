@@ -1,2 +1,3 @@
 # funny
-thương tớ chớ?
+Thương tớ chớ?
+Thương nhé
