@@ -1,0 +1,2 @@
+# funny
+thương tớ chớ?
